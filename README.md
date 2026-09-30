@@ -1,2 +1,8 @@
-# jogox
+# Algoritmando
+
+LKADJLÇajçdla
+akldlkçaDLÇA
+[KjadsjlAJDLa
+lkADSKLajd]
+]
 
